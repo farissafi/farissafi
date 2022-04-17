@@ -1,1 +1,1 @@
-hi every one im faris mohamed safi 
+Hi 👋, I'm faris safi
